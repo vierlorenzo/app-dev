@@ -10,7 +10,7 @@ After World War II, the three Shelby brothers—**Arthur Shelby**, **Thomas Shel
 ---
 
 ## Where to Watch
-You can watch the series **Peaky Blinders** on Netflix at this [link](https://www.netflix.com/title/80002479).
+You can watch the series **Peaky Blinders** on Netflix at [Netflix](https://www.netflix.com/title/80002479).
 
 ---
 
